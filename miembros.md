@@ -1,5 +1,5 @@
 # Miembros
-*Nick fuiry 
+*Nick fuiry.
 *Capitán America
 * Black panther
 * Black Widow
