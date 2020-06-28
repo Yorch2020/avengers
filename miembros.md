@@ -1,5 +1,6 @@
 # Miembros
-* Capitán America
+*Nick fuiry 
+*Capitán America
 * Black panther
 * Black Widow
 * Capitán Marvel
